@@ -12,7 +12,8 @@
 
 **For More Tools** 
 ---------- 
-*Click <a href="https://t.me/xBlacKxCoder">here</a> To Join My Telegram Channel .. <3* 
+*Click <a href="https://t.me/xBlacKxCoder">here</a> To Join My Telegram Channel ..*
+
 *Click <a href="https://xblackxcoder.team/enc/">here</a> To View Its Old Online Version .. <3* 
 ---------- 
 
